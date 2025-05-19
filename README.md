@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning source code
 - 💞️ I’m looking to collaborate with google
 - 📫 How to reach me ...:: via internet,instagram
-- 😄 Pronouns: ...:: ASHWIN,SRAVAN
+- 😄 Pronouns: ...:: BHANU
 - ⚡ Fun fact: ...scrolling reels for continous hours
 
 <!---
