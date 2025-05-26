@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lokeshreddy1902
-- 👀 I’m interested in playing cricket
+- 👀 I’m interested in reading books
 - 🌱 I’m currently learning source code
 - 💞️ I’m looking to collaborate with google
 - 📫 How to reach me ...:: via internet,instagram
